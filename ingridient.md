@@ -7,4 +7,4 @@
 2 1/2 cups of buttermilk
 2 eggs
 3 tblespoons of unsalted, melted butter
-oil for the pan\
+oil for the pan
